@@ -6,3 +6,5 @@ Fernando Alonso Zambrano Altamirano
 20180312K
 Gerald Takeshi Villarroel Lajo
 20170382F
+Angel Vidal Larreategui Castro
+20171385I
