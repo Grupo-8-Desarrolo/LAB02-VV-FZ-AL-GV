@@ -4,3 +4,5 @@ Vicente Jesus Vilchez Diaz
 20152720K
 Fernando Alonso Zambrano Altamirano
 20180312K
+Gerald Takeshi Villarroel Lajo
+20170382F
